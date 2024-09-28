@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/4cnyg8.png)
+![](https://files.catbox.moe/bdjdnw.png)
 
 <!--
 **schooIdays/schooidays** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
